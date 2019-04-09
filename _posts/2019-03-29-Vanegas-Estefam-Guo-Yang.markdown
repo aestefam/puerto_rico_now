@@ -16,3 +16,4 @@ Puerto Rico’s existing crisis, further intensified by the damage left behind b
 
 ![Should Work This Time](/puerto_rico_now/images/future_scenarios/PotentialFutures_Flag.png)
 
+![Tourism](/puerto_rico_now/images/future_scenarios/tourism.jpg)
